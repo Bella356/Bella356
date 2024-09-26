@@ -2,7 +2,7 @@
 - 👀 I’m interested in having a hadnds on practical experience in cyber security 
 - 🌱 I’m currently learning cyber security 
 - 💞️ I’m looking to collaborate on other people in my field of study
-- 📫 How to reach me 
+- 📫 How to reach me : itpaystoknowhenry@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
